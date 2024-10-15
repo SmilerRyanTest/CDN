@@ -5,9 +5,6 @@ MOEW
 MEWO
 MEWWWO
 MEEEEOOOOWWW
-
-
-
-
 mega meowwwwwwwww
 MEOWWW
+MEOW
